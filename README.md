@@ -1,1 +1,1 @@
-# wall-of-ideas
+# Wall of Ideas
